@@ -1,5 +1,4 @@
-## Hi there 👋
-
+this is for ponytown statuses only i might change it later to lmao.<br>If you wanna get to know me better then look at my links instead.<br>im usually on DND but im lurking and watching<br>you can either come up to me and interact or whisper me<br>if i'm on online im actively looking for interaction and im probably very bored.<br>please for the love of god int with me!<br>thats basically it. I'm never really on anything else.
 <!--
 **sociospencer/sociospencer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
